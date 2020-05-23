@@ -1,2 +1,5 @@
 # hello
-Johnson here is giveaway money free
+Hi man
+Make money not friend 
+
+
